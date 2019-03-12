@@ -1,7 +1,5 @@
 Paypal / Curso Digital Gratis / Enlaces _ https://tinyurl.com/y2tla44b
 ------------------------------
-Suscríbete a la Comunidad de Emprendedores por Internet Para Estar al Tanto de los Nuevos Cursos y Recursos Gratis _ https://tinyurl.com/y2fwhpac
-------------------------------
 ¡ Únete a Esta Nueva Comunidad de Emprendedores por Internet !
 ------------------------------------
 Suscríbete a la Comunidad en Línea Para Estar al Tanto de los Nuevos Cursos y Recursos Gratis _ https://tinyurl.com/y2fwhpac
